@@ -1,9 +1,9 @@
 ---
-title: nieskonczone-mysli
+title: Nad brzegiem rzeki szedłem sobie i słuchałem
 date: 2022-06-02 17:28:27
 tags: gnioty
 ---
-# Nieskończone myśli
+
 Szedłem sobie spacerem nad brzegiem rzeki słuchając audycji. Wtem, dotarło do mnie, że zgubiłem jej wątek zagubiwszy się w myślach. Na szczęście, możliwym było o kilka sekund do tyłu przewinąć czyjeś słowa i oddałem się ponownie słuchaniu. Bo ja lubię ambitne i treściwe audycje. Szedłem dalej. Dzień był piękny. Myślałem sobie, jaki piękny ten dzień i że idę sobie, bo mam chęć iść, właśnie tędy, i, że wchłaniam go, ten dzień, nad brzegiem rzeki.
 
 Zamyśliłem się znów nad tym doświadczeniem. Zdarza się. Dzień był przecież godny podziwu. Przewinąłem porządnie, żeby nie zgubić wątku i nie oszukiwać tym samym. Szedłem dalej. Lecz nie piękno dnia ale jakieś zmącenie, nie czystość porannego pejzażu, nie słonce na skórze, lecz rodzaj niepokoju jął wkradać się we mnie. Trwało to ledwie sekundę, ale wybiło mnie z rytmu i zorientowałem się, że myślę nad tym właśnie. Że TO myślę!
